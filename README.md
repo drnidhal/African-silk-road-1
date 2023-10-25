@@ -38,7 +38,7 @@ We welcome collaboration and support from individuals, organizations, and govern
 
 ## Contact Us
 
-For inquiries, partnership proposals, or more information about the Sfax to Senegal Commercial Train Line Project, please contact us at [your contact information].
+For inquiries, partnership proposals, or more information about the Sfax to Senegal Commercial Train Line Project, please contact us at [Mail = nidhalbelloumi@hotmail.fr].
 
 Join us in making this visionary project a reality and fostering global economic growth and cooperation.
 
